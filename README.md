@@ -1,2 +1,2 @@
 # Letters of Recommendations
- I maintained a US gas station database and also took care of any software or hardware issues that arose. The second letter is from General Manager of Holland America Princess in Alaska regarding my social skills, dedication and team leadership.
+I maintained a database and resolved any software or hardware issues that arose. The second letter highlights my social skills, dedication, and team leadership abilities.
